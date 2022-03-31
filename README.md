@@ -1,1 +1,0 @@
-# gordanast.github.jo
